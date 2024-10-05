@@ -55,7 +55,7 @@ Before you begin, make sure you have the following installed:
 # Telegram Channel
 
 ✅ Channel for information and training on Telegram airdrop bots 🔷 Follow us on Telegram : [SIZIFAIRDROP](https://t.me/sizifairdrop)
-[ JOINTELEGRAM CHANNEL](https://t.me/Pumpbtcxyz)
+[ COMBO AIRDROP](https://t.me/Pumpbtcxyz)
 | [FOLLOW MY TWITTER](https://x.com/Nhia1st)
     
 # Donate
